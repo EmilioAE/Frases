@@ -1,6 +1,5 @@
 "De que nos sirve ganar el mundo, si perdemos el cielo"
 
-
 "Old Father, old artificer, Stand me now and ever in good stead" James Joyce
 
 "I can never read all the books I want; I can never be all the people I want and live all the lives I want. 
