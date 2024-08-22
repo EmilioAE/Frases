@@ -13,3 +13,5 @@ And why do I want? I want to live and feel all the shades, tones and variations 
 "And by the way, everything in life is writable about if you have the outgoing guts to do it, and the imagination to improvise. The worst enemy to creativity is self-doubt." Silvia Plath
 
 "If you're lonely when you're alone, you're in bad company." Jean Paul Sartre
+
+"... la verdad, cuya madre es la historia, émula del tiempo, depósito de las acciones, testigo de lo pasado, ejemplo y aviso de lo presente, advertencia de lo por venir." Pierre Menard
