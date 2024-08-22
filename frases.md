@@ -11,3 +11,5 @@ And why do I want? I want to live and feel all the shades, tones and variations 
 "The only serious question in life is whether to kill yourself or not." Albert Camus
 
 "And by the way, everything in life is writable about if you have the outgoing guts to do it, and the imagination to improvise. The worst enemy to creativity is self-doubt." Silvia Plath
+
+"If you're lonely when you're alone, you're in bad company." Jean Paul Sartre
